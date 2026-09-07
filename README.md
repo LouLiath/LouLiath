@@ -9,5 +9,5 @@
 <details>
 <summary>  &nbsp;&nbsp; <img src="https://64.media.tumblr.com/736b11f55734151e37af32ef6ce8d4bc/7b0dbcd609c8394b-53/s75x75_c1/e9435883b2e85324fc468343ccdedd15f3135ec2.pnj" width="20" alt="icon" />&nbsp;&nbsp;    $${\color{#a71414}byi}$$ </summary><br>
 ${\textsf{\color{#8c87b5} i dont friend minors.}}$
- ${\textsf{\color{#8c87b5} fem honorifics 4 me!}}$
-  ${\textsf{\color{#8c87b5} no flirting.}}$
+ ${\textsf{\color{#8c87b5} fem honorifics 4 me.}}$
+  ${\textsf{\color{#8c87b5} also, no flirting.}}$
